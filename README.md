@@ -1,0 +1,1 @@
+# perpindahan-kalor-privacy
